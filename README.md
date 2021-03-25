@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Eva
+- 👀 I’m a gamer B)
+- 🌱 I’m currently doing nothing
+- 💞️ I’m looking to code random shit
+- 📫 How to reach me ... dont
