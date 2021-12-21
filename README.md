@@ -2,4 +2,4 @@
 - 👀 I’m a gamer B)
 - 🌱 I’m currently doing nothing
 - 💞️ I’m looking to code random shit
-- 📫 How to reach me ... dont
+- 📫 How to reach me (you shouldnt) Seryn#5717
