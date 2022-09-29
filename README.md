@@ -1,5 +1,2 @@
-- 👋 Hi, I’m Eva
-- 👀 I’m a gamer B)
-- 🌱 I’m currently doing nothing
-- 💞️ I’m looking to code random shit
-- 📫 How to reach me (you shouldnt) Seryn#5717
+I code stuff
+reach me at #Seryn#5717
